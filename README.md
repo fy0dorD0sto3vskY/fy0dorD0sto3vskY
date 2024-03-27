@@ -1,12 +1,7 @@
-- ⊹ ࣪  Hi, I’m @fy0dorD0sto3vskY AKA Riku!
--  ๋࣭⭑  I’m 12 years old!
-- 𖧧࣪ ִֶָ๋  I have friends that are older than me!
--  ࣪˚ᰔ Lesbian power
--  ݁𓈒 × Ik I'm too young to be gay but love is love??
--  ༘⋆｡˚ Pronouns!!~ She/Them
-- ˚`⋆ I'm into her but she isn't into me:c
-
-<!---
-fy0dorD0sto3vskY/fy0dorD0sto3vskY is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- ⊹ ࣪  𝙷𝚒, 𝙸'𝚖 𝚁𝚒𝚔𝚞 𝚘𝚛 𝚢𝚘𝚞 𝚌𝚊𝚗 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚈𝚞𝚛𝚒!!
+-  ๋࣭⭑  𝙸’𝚖 𝟷𝟸 𝚢𝚎𝚊𝚛𝚜 𝚘𝚕𝚍!
+- 𖧧࣪ ִֶָ๋  𝙸 𝚑𝚊𝚟𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚝𝚑𝚊𝚝 𝚊𝚛𝚎 𝚘𝚕𝚍𝚎𝚛 𝚝𝚑𝚊𝚗 𝚖𝚎!
+-  ࣪˚ᰔ 𝙻𝚎𝚜𝚋𝚒𝚊𝚗 𝚙𝚘𝚠𝚎𝚛
+-  ݁𓈒 × 𝙸'𝚖 𝚊𝚌𝚝𝚞𝚊𝚕𝚕𝚢 𝚕𝚎𝚜𝚋𝚒𝚊𝚗 𝚝𝚑𝚊𝚗 𝚋𝚒𝚜𝚎𝚡𝚞𝚊𝚕
+-  ༘⋆｡˚ 𝙿𝚛𝚘𝚗𝚘𝚞𝚗𝚜!!~ 𝚂𝚑𝚎/𝚃𝚑𝚎𝚖
+- ˚`⋆ 𝙸'𝚖 𝚒𝚗𝚝𝚘 𝚑𝚎𝚛 𝚋𝚞𝚝 𝚜𝚑𝚎 𝚒𝚜𝚗'𝚝 𝚒𝚗𝚝𝚘 𝚖𝚎:𝚌
